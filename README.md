@@ -8,7 +8,7 @@ All the stickers use fonts that I have access and the fonts allow the sticker de
 
 I recommend ordering from [StickerApp](https://stickerapp.com/). The website has amazing web GUI for customizing the sticker print to your own needs.
 
-If you are ordering these stickers, please let me know and give few sitckers for me as well 😎
+If you are ordering these stickers, please let me know and give few stickers for me as well 😎
 
 ## License information
 
